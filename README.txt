@@ -13,3 +13,10 @@ Pigs in the footage suffer from prolapses (Uterine prolapse occurs when
 pelvic floor muscles and ligaments stretch and weaken until they no longer 
 provide enough support for the uterus. As a result, the uterus slips down 
 into or protrudes out of the vagina.)
+
+bull fighting
+https://sentientmedia.org/bullfighting/
+
+harvesting plants kills animals in the fields where they are harvested
+
+plants feel pain
