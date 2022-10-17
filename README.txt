@@ -1,3 +1,15 @@
+instrumental change
+
+https://plantbasednews.org/lifestyle/san-francisco-jails-slash-consumption-animal-products/
+
+https://www.theguardian.com/world/2022/oct/11/new-zealand-farmers-may-pay-for-greenhouse-gas-emissions-under-world-first-plans
+
+https://thebeet.com/san-francisco-to-reduce-meat-and-dairy-served-in-hospitals-and-jails/
+
+https://www.nychealthandhospitals.org/pressrelease/mayor-adams-nyc-health-hospitals-announce-successful-rollout-and-expansion-of-plant-based-meals-as-primary-option-for-patients-in-nyc-public-hospitals/
+
+https://www.nytimes.com/2019/10/14/style/fur-ban-california.html
+
 pigs
 
 https://sentientmedia.org/prop-12-oral-arguments/
