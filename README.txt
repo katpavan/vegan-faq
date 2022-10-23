@@ -10,6 +10,10 @@ https://www.nychealthandhospitals.org/pressrelease/mayor-adams-nyc-health-hospit
 
 https://www.nytimes.com/2019/10/14/style/fur-ban-california.html
 
+animals are meant to be eaten because they were raised for that purpose
+
+https://www.washingtonpost.com/dc-md-va/2022/10/17/beagles-envigo-rescue-humane-society/
+
 pigs
 
 https://sentientmedia.org/prop-12-oral-arguments/
