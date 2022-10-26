@@ -1,3 +1,5 @@
+idea: translate this to telugu and a ton of languages
+
 instrumental change
 
 https://plantbasednews.org/lifestyle/san-francisco-jails-slash-consumption-animal-products/
@@ -36,3 +38,4 @@ https://sentientmedia.org/bullfighting/
 harvesting plants kills animals in the fields where they are harvested
 
 plants feel pain
+
