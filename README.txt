@@ -21,11 +21,19 @@ https://www.nychealthandhospitals.org/pressrelease/mayor-adams-nyc-health-hospit
 
 https://www.nytimes.com/2019/10/14/style/fur-ban-california.html
 
-animals are meant to be eaten because they were raised for that purpose
+## animals are meant to be eaten because they were raised for that purpose
 
 https://www.washingtonpost.com/dc-md-va/2022/10/17/beagles-envigo-rescue-humane-society/
 
-pigs
+## animal ag industry pays to downplay global warming link to animal ag
+https://sentientmedia.org/frank-mitloehner/
+
+## bees
+
+bees play
+https://www.npr.org/2022/11/05/1134355887/bumblebees-can-play-does-it-mean-they-have-feelings-study-says-yes?utm_campaign=storyshare&utm_source=facebook.com&utm_medium=social&fbclid=IwAR1fFCGy14fWLfoZ647koaMKUKd5VRyD1CVt0FUHypLmx_XeUFSDBRZ0Ur4
+
+## pigs
 
 https://sentientmedia.org/prop-12-oral-arguments/
 
