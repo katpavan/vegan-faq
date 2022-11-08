@@ -18,6 +18,9 @@ https://www.youtube.com/watch?v=siTvjWE2aVw
 ## milk
 https://www.pcrm.org/news/blog/white-lies-five-myths-debunked
 
+but animal milk is so healthy
+https://www.pcrm.org/news/blog/white-lies-five-myths-debunked
+
 dairy is scary
 https://www.youtube.com/watch?v=UcN7SGGoCNI&t=2s
 
