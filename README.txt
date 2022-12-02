@@ -32,6 +32,9 @@ https://www.youtube.com/watch?v=VI4EjUJb6PQ
 
 instrumental change
 
+https://www.euronews.com/green/2022/11/29/scottish-university-takes-meat-off-the-menu-as-student-union-votes-to-go-100-vegan
+The University of Stirling is a public university in Stirling, Scotland, founded by royal charter in 1967. As of 2022, the university has 14,000 part-time and full-time students.
+
 https://plantbasednews.org/lifestyle/san-francisco-jails-slash-consumption-animal-products/
 
 https://www.theguardian.com/world/2022/oct/11/new-zealand-farmers-may-pay-for-greenhouse-gas-emissions-under-world-first-plans
