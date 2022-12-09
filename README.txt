@@ -9,6 +9,9 @@ idea: translate this to telugu and a ton of languages
 In the egg industry, hens don't get to spread their wings. They don't get to get to incubate the eggs they laboriously laid, or raise their babies.  They will never do all the things that they would do naturally — feel the earth under their feet, see the sky or take a sand bath.  This breaks our hearts, and we wish all chickens could live freely and as happily as they are at Freedom Farm Sanctuary.  
 Help us change their painful reality and join us in making the world more compassionate — please consider registering for Challenge 22: https://challenge22.com/
 
+ethical meet
+gmail subject:Ethical Meat Can't Solve the Problem of Animal Cruelty (Podcast)
+
 summaries of research
 https://veg3.ai/research
 
