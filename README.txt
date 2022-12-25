@@ -1,6 +1,9 @@
 
 idea: translate this to telugu and a ton of languages
 
+arguments against and reasoning
+https://www.youtube.com/watch?v=P44D1FcCZug
+
 1. Chickens can recognize over 100 different faces!
 2. Hens talk to their chicks even before they hatch! The mother cackles to them, and they chirp back to her from the egg.
 3. Hens are remarkably devoted mothers. They will protect their chicks at any cost, and tuck them under her wings at night to sleep.
