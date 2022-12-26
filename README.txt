@@ -6,6 +6,9 @@ It's not fair to ignore ethics. Spousal abuse was legal for a long time. It wasn
 arguments against and reasoning
 https://www.youtube.com/watch?v=P44D1FcCZug
 
+soy
+https://youtu.be/e-VNXCSGgsg?t=1848
+
 indigenous 
 https://www.youtube.com/watch?v=UWp9qBTz1a8
 "I am Indigenous, Rosebud Sioux and Yakama Nation and I'm also vegan.
