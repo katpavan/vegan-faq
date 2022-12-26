@@ -1,6 +1,8 @@
 
 idea: translate this to telugu and a ton of languages
 
+It's not fair to ignore ethics. Spousal abuse was legal for a long time. It wasn't until the Declaration on the Elimination of Violence Against Women in 1993 that violence in a marriage would result in consequences. Protecting the weak is important.
+
 arguments against and reasoning
 https://www.youtube.com/watch?v=P44D1FcCZug
 
