@@ -1,3 +1,4 @@
+https://docs.google.com/spreadsheets/d/1J8b3asRrmZGaD9KnfxMv7kCuzzWGdzj_DL9vCnGt_ws/edit#gid=0
 
 idea: translate this to telugu and a ton of languages
 
