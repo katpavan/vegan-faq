@@ -1,6 +1,10 @@
 
 idea: translate this to telugu and a ton of languages
 
+calcium myth
+https://youtu.be/zV9XhX_QSjA?t=962
+countries that drink the most milk have the worst calcium
+
 It's not fair to ignore ethics. Spousal abuse was legal for a long time. It wasn't until the Declaration on the Elimination of Violence Against Women in 1993 that violence in a marriage would result in consequences. Protecting the weak is important.
 https://www.betterhelp.com/advice/domestic-violence/a-history-of-domestic-violence-how-much-have-things-changed/
 
