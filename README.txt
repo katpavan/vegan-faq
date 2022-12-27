@@ -2,6 +2,8 @@ https://docs.google.com/spreadsheets/d/1J8b3asRrmZGaD9KnfxMv7kCuzzWGdzj_DL9vCnGt
 
 idea: translate this to telugu and a ton of languages
 
+https://www.animal-ethics.org/frequently-asked-questions-about-veganism/responses-to-questions-and-objections-to-veganism/
+
 https://www.youtube.com/watch?v=Hb4u3OoOT8w
 
 calcium myth
