@@ -2,6 +2,8 @@ https://docs.google.com/spreadsheets/d/1J8b3asRrmZGaD9KnfxMv7kCuzzWGdzj_DL9vCnGt
 
 idea: translate this to telugu and a ton of languages
 
+https://www.youtube.com/watch?v=Hb4u3OoOT8w
+
 calcium myth
 https://youtu.be/zV9XhX_QSjA?t=962
 countries that drink the most milk have the worst calcium
