@@ -1,5 +1,7 @@
 https://docs.google.com/spreadsheets/d/1J8b3asRrmZGaD9KnfxMv7kCuzzWGdzj_DL9vCnGt_ws/edit#gid=0
 
+gas chambers pigs how they die: https://www.wired.com/story/dex-pig-slaughterhouse-gas-chambers-videos/
+
 idea: translate this to telugu and a ton of languages
 
 https://www.animal-ethics.org/frequently-asked-questions-about-veganism/responses-to-questions-and-objections-to-veganism/
