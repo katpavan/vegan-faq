@@ -1,5 +1,8 @@
 https://docs.google.com/spreadsheets/d/1J8b3asRrmZGaD9KnfxMv7kCuzzWGdzj_DL9vCnGt_ws/edit#gid=0
 
+https://www.linkedin.com/feed/update/urn:li:activity:7031362039285436416?commentUrn=urn%3Ali%3Acomment%3A%28activity%3A7031362039285436416%2C7031452894461599744%29&dashCommentUrn=urn%3Ali%3Afsd_comment%3A%287031452894461599744%2Curn%3Ali%3Aactivity%3A7031362039285436416%29
+My husband and I raised chickens for eggs over the past 3 years. It taught us a lot about how amazing these birds are and how horrible their genetics are for basic life functions. Due to their engineered, hyper reproductive (essentially cancerous) state, about 1 in 3 chickens will develop ovarian cancer by the time they are 2.5 years of age!!! I honestly thought the biggest threats to my birds were infectious, but in less than 4 years we lost half our flock to reproductive causes (ovarian cancer and internal egg laying). Witnessing this has honestly given us a whole new perspective to these industries and the hard lives that these production birds and farmers face in keeping these birds alive. Can we not seriously revisit other breeds of birds for the egg industry OR try to engineer birds that can live a healthier more disease free life in addition to satisfying our desire for eggs?
+
 gas chambers pigs how they die: https://www.wired.com/story/dex-pig-slaughterhouse-gas-chambers-videos/
 
 idea: translate this to telugu and a ton of languages
