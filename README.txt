@@ -83,10 +83,27 @@ https://www.youtube.com/watch?v=UcN7SGGoCNI&t=2s
 ## humane slaughter
 https://www.youtube.com/watch?v=VI4EjUJb6PQ
 
-instrumental change
+## instrumental change
 
 https://www.euronews.com/green/2022/11/29/scottish-university-takes-meat-off-the-menu-as-student-union-votes-to-go-100-vegan
 The University of Stirling is a public university in Stirling, Scotland, founded by royal charter in 1967. As of 2022, the university has 14,000 part-time and full-time students.
+
+Administrative staff	1,872
+Undergraduates	8,545
+Postgraduates	3,995
+
+Stirling has international degree programme partnerships in China with Hebei Normal University, Singapore with Singapore Institute of Management, and Oman. The university offers a MSc in Human Rights & Diplomacy, which is the only Human Rights and Diplomacy programme in the world taught in partnership with the United Nations Institute for Training and Research (UNITAR).
+
+
+https://amp-theguardian-com.cdn.ampproject.org/c/s/amp.theguardian.com/education/2023/feb/21/cambridge-university-students-vote-for-completely-vegan-menus
+Academic staff	6,170 (2020)[5]
+Administrative staff	3,615 (excluding colleges)[5]
+Students	24,450 (2020)[6]
+Undergraduates	12,850 (2020)
+Postgraduates	11,600 (2020)
+Location	Cambridge, England
+
+Founded in 1209 and granted a royal charter by King Henry III in 1231, Cambridge is the world's third-oldest surviving university and one of its most prestigious, currently ranked second-best in the world and the best in Europe by QS World University Rankings. Among the university's most notable alumni are 11 Fields Medalists, seven Turing Award winners, 47 heads of state, 14 British prime ministers, 194 Olympic medal-winning athletes,[11] and some of world history's most transformational and iconic figures across disciplines, including Francis Bacon, Lord Byron, Oliver Cromwell, Charles Darwin, Stephen Hawking, John Maynard Keynes, John Milton, Vladimir Nabokov, Jawaharlal Nehru, Isaac Newton, Bertrand Russell, Manmohan Singh, Alan Turing, Ludwig Wittgenstein, among others. Cambridge affiliates, adopting the official metrics, include some 120 Nobel laureates as alumni, academic staff or visitors.
 
 https://plantbasednews.org/lifestyle/san-francisco-jails-slash-consumption-animal-products/
 
