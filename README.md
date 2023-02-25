@@ -124,6 +124,9 @@ https://sentientmedia.org/frank-mitloehner/
 
 ## bees
 
+talks about killing the colony because of winter
+https://www.youtube.com/watch?v=XB-QHnubiX8&t=13s
+
 bees play
 https://www.npr.org/2022/11/05/1134355887/bumblebees-can-play-does-it-mean-they-have-feelings-study-says-yes?utm_campaign=storyshare&utm_source=facebook.com&utm_medium=social&fbclid=IwAR1fFCGy14fWLfoZ647koaMKUKd5VRyD1CVt0FUHypLmx_XeUFSDBRZ0Ur4
 
