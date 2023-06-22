@@ -133,6 +133,14 @@ https://www.youtube.com/watch?v=XB-QHnubiX8&t=13s
 bees play
 https://www.npr.org/2022/11/05/1134355887/bumblebees-can-play-does-it-mean-they-have-feelings-study-says-yes?utm_campaign=storyshare&utm_source=facebook.com&utm_medium=social&fbclid=IwAR1fFCGy14fWLfoZ647koaMKUKd5VRyD1CVt0FUHypLmx_XeUFSDBRZ0Ur4
 
+https://www.pbs.org/newshour/science/are-commercial-honeybees-making-wild-bees-sick
+https://www.thesciencebreaker.org/breaks/evolution-behaviour/viruses-are-spilling-over-from-managed-honey-bees-to-wild-bumble-bees
+https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3985068/
+https://www.sciencedaily.com/releases/2019/06/190626160339.htm
+
+spillover to other Arthropods
+https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8400633/
+
 ## pigs
 
 https://sentientmedia.org/prop-12-oral-arguments/
