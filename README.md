@@ -1,5 +1,9 @@
 https://docs.google.com/spreadsheets/d/1J8b3asRrmZGaD9KnfxMv7kCuzzWGdzj_DL9vCnGt_ws/edit#gid=0
 
+why do we have canines if we're meant to eat plantS?
+Hippopotamus – Hippopotamuses have the largest teeth of any land animal. Their canine teeth can grow to be 1.5 feet long and their front incisors grow to be around 1.2 feet long!
+
+
 "I was given a couple of rats as a gift once. I'd never considered them as pets, but they won me over with their charm and intelligence. Mine even took great care of each other. One of them got a bit sick, and the other one brought her food and kept her clean and comfortable until she got better."
 - https://www.youtube.com/watch?v=NLFIno6pJE8
 
