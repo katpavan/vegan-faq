@@ -1,3 +1,7 @@
+yes there are plant based foods not good for the environment, but all animal based foods are bad for the planet. we some how raise 750billion animals each year, give them food and water and kill them but yet people starve and can't get fresh water.
+ 
+local beekeepers buy commercial bees that infect wildflowers with diseases and kill those bees and ecosystems. there are very few beekeepers that support wildbees. they but the bees and get them shipped from china
+
 this isn't true. ethical honey doesn't exist. beekeepers get their bees from factory farms in china. the bees are shipped to them. these bees are diseased because they're farmed in close quarters. then these bees spread their diseases to wildflowers and that's why wild bees are dying and the ecosystems around them are getting screwed. on top of that, beekeepers kill their bees for winter and perpetually keep them weak by taking all their honey and leaving sugar water. beekeepers aren't environmentalists. they're profit seekers.
 
 
