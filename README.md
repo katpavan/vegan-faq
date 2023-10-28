@@ -1,3 +1,6 @@
+this isn't true. ethical honey doesn't exist. beekeepers get their bees from factory farms in china. the bees are shipped to them. these bees are diseased because they're farmed in close quarters. then these bees spread their diseases to wildflowers and that's why wild bees are dying and the ecosystems around them are getting screwed. on top of that, beekeepers kill their bees for winter and perpetually keep them weak by taking all their honey and leaving sugar water. beekeepers aren't environmentalists. they're profit seekers.
+
+
 https://docs.google.com/spreadsheets/d/1J8b3asRrmZGaD9KnfxMv7kCuzzWGdzj_DL9vCnGt_ws/edit#gid=0
 
 why do we have canines if we're meant to eat plantS?
