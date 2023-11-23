@@ -1,3 +1,6 @@
+https://origins.osu.edu/read/hunger-not-eradicated-food-crisis-africa?language_content_entity=en
+700m+ people worldwide go hungry
+
 https://www.youtube.com/watch?v=sWyK389BJoI
 slaughter house workers interview
 
