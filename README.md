@@ -1,3 +1,7 @@
+The argument I use is to relate the animals as being voiceless. Sure eating them gives pleasure, but as a society we've condemned and made it illegal to take pleasure in exploiting part of the voiceless. There are people who watch CP and although they're not directly hurting children, they're certainly contributing to the exploitation and suffering of children and that's why we made it illegal and have condemned CP.
+
+I finish it off with how John Wayne Gacy raped and murdered little boys and he was treated better than a baby cow that did nothing to anyone.
+
 https://origins.osu.edu/read/hunger-not-eradicated-food-crisis-africa?language_content_entity=en
 700m+ people worldwide go hungry
 
