@@ -1,3 +1,7 @@
+https://www.swissveg.ch/life-expectancy?language=en#:~:text=Life%20expectancy%20vs.-,lifespan,before%20they%20are%20fully%20grown.
+life expectancy vs age of slaughter
+----
+
 First time vegan tips:
 
 1. add nutritional yeast like you do with salt, pepper to things. it'll keep your b vitamins high. I don't take a b vitamin pill and my blood test showed that my levels are high
