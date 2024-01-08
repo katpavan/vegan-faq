@@ -1,3 +1,6 @@
+plants feel pain
+https://youtu.be/6WD4HL2MV7Y?si=Uu7iy-47LVvw15P8&t=148
+
 https://www.swissveg.ch/life-expectancy?language=en#:~:text=Life%20expectancy%20vs.-,lifespan,before%20they%20are%20fully%20grown.
 life expectancy vs age of slaughter
 ----
