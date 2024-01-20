@@ -1,3 +1,6 @@
+when wolves were rewilded, equilibrium was brought back to yellowstone. hunters ruined it by killing wolves.
+https://www.theguardian.com/environment/2020/jan/25/yellowstone-wolf-project-25th-anniversary
+
 plants feel pain
 https://youtu.be/6WD4HL2MV7Y?si=Uu7iy-47LVvw15P8&t=148
 
