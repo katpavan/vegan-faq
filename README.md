@@ -13,14 +13,42 @@ First time vegan tips:
 1. add nutritional yeast like you do with salt, pepper to things. it'll keep your b vitamins high. I don't take a b vitamin pill and my blood test showed that my levels are high
 2. one cup of oatly has 20% of your daily vitamin d, but take a vitamin d supplement anyway
 3. add fermented foods to your diet to get vitamin k2 (natto is very high in vitamin k2 but is only common in japan. you can do sauerkraut or a vegan kimchi instead and that'll give you a bit)
+
+to replace eggs and cheese nutrition, you need vitamin k2
+-----
+
+vitamin k1 is found in greens, but vitamin k2 is found in animal products or fermented plant based foods:
+
+- natto is extremely high in vitamin k2 (but really only found in japan)
+
+- kimchi and sauerkraut have vitamin k2
+
+- take a vitamin k2 supplement
+
 4. tofu scramble does a good job replacing scrambled eggs for me. I add black salt to give it an eggy taste.
 5. tofu is a complete protein
 6. for baking i replace an egg with a flaxegg (1 tablespoon flaxseed flour, which is just blended flaxseeds, 2.5 tablespoons water, mix, let sit for 5 minutes to thicken)
-7. to get your omegas
+7. to replace seafood nutrition, get your omegas:
+
+There are 3 types of omegas: ALA, DHA and EPA and they're all essential to our health. 
+
+Our bodies can convert ALA into DHA and EPA. However, this process is variable based on the individual.
+
+To get ALA omegas: 
+-----
 * Chia seeds are a great add to your morning oatmeal. 1 oz has 5000 mg of omega 3 which is over three to four times your daily intake.
 * three tbsp of hemp seeds gives you 2600mg of omega 3.
 * one oz of walnuts gives you 2570 mg of omega 3.
 * flaxseeds have fiber, protein, magnesium, manganese and omega-3s. just 1 tbsp has 2530 mg of omega 3.
+
+DHA and EPA were thought to be produced by fish, but that's wrong. they aren’t produced by fish but by algae. Fish are high in omega-3s because algae is a significant part of their diets. Algae are plant-based sources of DHA and EPA that are safe for everyone to consume.  fish are high in mercury—a naturally occurring heavy metal that’s highly toxic and accumulates in the bodies of fish. When you eat fish high in mercury, that mercury can build up in your blood over time and negatively impact your health.
+To get DHA and EPA omegas:
+----
+take a plant-based algae oil
+
+
+
+
 8. get ready to explain yourself to people who ask questions. Watch earthling ed convince people of veganism: https://www.youtube.com/@ed.winters
 9. watch vegan cooking youtubers. here are some of my favorite people:
 * https://www.youtube.com/@PickUpLimes
